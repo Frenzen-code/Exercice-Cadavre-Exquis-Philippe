@@ -8,4 +8,8 @@ Her name was Catia
 
 She was red and green
 
+She hadn't milk
 
+she was a cow of alcohol
+
+she had Vodka
